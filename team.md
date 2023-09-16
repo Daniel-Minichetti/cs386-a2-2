@@ -2,6 +2,6 @@
 
 # Jessica Maldonado
 
-- Third year computer science and math major that thinks space is cool :D
+- THIRD YEAR COMPUTER SCIENCE AND MATH MAJOR THAT THINKS SPACE IS COOL :D
 
 # Elian Zamora
