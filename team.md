@@ -6,3 +6,4 @@ I am an applied Computer Science major at NAU!
 - THIRD YEAR COMPUTER SCIENCE AND MATH MAJOR THAT THINKS SPACE IS COOL :D
 
 # Elian Zamora
+- applied computer science major
